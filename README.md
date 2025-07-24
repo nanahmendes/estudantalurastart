@@ -1,10 +1,9 @@
 # anna mendes
 
-### sejam muito bem vindos ao meu perfil
-### ⚫ meu nome é ANNA MENDES
-### ⚫ estou estudando no Alura
-### ⚫ sou do 2EM
-
+### odeio essa escola lixoo
+### my baby...utt
+### toma que toma 
+### calma calabreso calma calma calabreso
 # PAPAICALABRESO
 
 ![](https://media1.tenor.com/m/V_wWNWHe6eQAAAAC/mi-de-papai-papai.gif)
